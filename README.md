@@ -7,3 +7,4 @@ BDB
 Nu scrim nebunii!!!
 facem
 bine
+klklkl;kl;kl;
